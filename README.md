@@ -44,7 +44,8 @@ Deadlines are usually in February. List is not comprehensive.
 - ...
 
 ## Misc
-Undergraduate Research Scholar and Distinguished Undergraduate Research Scholar Distinctions
+Undergraduate Research Scholar and Distinguished Undergraduate Research Scholar 
+
 The Undergraduate Research Scholar and Distinguished Undergraduate Research Scholar distinctions serve to recognize undergraduate accomplishments in research and encourage students to disseminate their research beyond the UNCW community. Scholars will receive commemorative items to wear during graduation and will be announced at the Student Showcase and on social media.
 
 Note that these distinctions are only awarded to graduating seniors so you must have already filed for graduation. You will additionally need to provide proof (e.g., screenshots) for your achievements. However, you can use activities from your entire four years to satisfy the requirements.
